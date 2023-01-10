@@ -4,9 +4,9 @@
 #### 4
 #### here too
 #### 6
-#### 7
+#### Number Seven was here
 #### 8
-#### Github is really good
+#### Github is really awesome
 #### 10
 #### 11
 #### 12
